@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @ConnorSchicht
+- 📚 I’m currently studying Actuarial Studies and Computer Science at University
