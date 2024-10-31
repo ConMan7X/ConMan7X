@@ -1,2 +1,2 @@
-- 👋 Hi, I’m @ConnorSchicht
+- 👋 Hi, I’m @ConMan7X
 - 📚 I’m currently studying Actuarial Studies and Computer Science at University
